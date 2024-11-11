@@ -57,4 +57,4 @@ Explore our career development blog for helpful tips and guides:
 
 For any questions or support, feel free to reach out to us via our website.
 
-Thank you for choosing **[selfcv.com](https://www.selfcv.com)**—your trusted partner in landing your next big opportunity!
+Thank you for choosing **[selfcv.com](https://www.selfcv.com)** - your trusted partner in landing your next big opportunity!
