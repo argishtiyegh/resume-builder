@@ -74,7 +74,7 @@ Explore our career development blog for helpful tips and guides:
 - https://tinyurl.com/how-create-a-resume
 - https://tinyurl.com/resume-createblog
 - https://tinyurl.com/cv-builder-blog
-- flowto.it/eukEM5gqF1?fc=0
+- https://flowto.it/eukEM5gqF1?fc=0
 - https://flow.page/selfcv
   
 ## Contact Us
