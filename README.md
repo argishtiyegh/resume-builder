@@ -54,10 +54,10 @@ Explore our career development blog for helpful tips and guides:
 - [Social Media Marketing Resume](https://www.selfcv.com/career-blog/social-media-marketing-resume/)
 
 ## Short Urls 
-https://tinyurl.com/resume-templates-for-2025
-https://tinyurl.com/create-free-resume
-https://tinyurl.com/softwareengineer-resume
-https://tinyurl.com/selfcv-resume
+- https://tinyurl.com/resume-templates-for-2025
+- https://tinyurl.com/create-free-resume
+- https://tinyurl.com/softwareengineer-resume
+- https://tinyurl.com/selfcv-resume
 
 ## Contact Us
 
