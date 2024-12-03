@@ -53,6 +53,12 @@ Explore our career development blog for helpful tips and guides:
 - [Civil Engineer Resume](https://www.selfcv.com/career-blog/civil-engineer-resume/)
 - [Social Media Marketing Resume](https://www.selfcv.com/career-blog/social-media-marketing-resume/)
 
+## Short Urls 
+https://tinyurl.com/resume-templates-for-2025
+https://tinyurl.com/create-free-resume
+https://tinyurl.com/softwareengineer-resume
+https://tinyurl.com/selfcv-resume
+
 ## Contact Us
 
 For any questions or support, feel free to reach out to us via our website.
