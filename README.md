@@ -58,7 +58,23 @@ Explore our career development blog for helpful tips and guides:
 - https://tinyurl.com/create-free-resume
 - https://tinyurl.com/softwareengineer-resume
 - https://tinyurl.com/selfcv-resume
-
+- https://tinyurl.com/create-a-resume-for-2025
+- https://tinyurl.com/social-media-marketing-resum
+- https://tinyurl.com/civil-engineer-resume
+- https://tinyurl.com/architecture-resume-template
+- https://tinyurl.com/architecture-resume-guide
+- https://tinyurl.com/developer-resume-write
+- https://tinyurl.com/software-developer-resume
+- https://tinyurl.com/resume-mistakes-to-avoid
+- https://tinyurl.com/resume-create-guide
+- https://tinyurl.com/resume-sections-for-2025
+- https://tinyurl.com/must-have-sections-for-resume
+- https://tinyurl.com/hobbies-on-resume
+- https://tinyurl.com/how-make-resume
+- https://tinyurl.com/how-create-a-resume
+- https://tinyurl.com/resume-createblog
+- https://tinyurl.com/cv-builder-blog
+- 
 ## Contact Us
 
 For any questions or support, feel free to reach out to us via our website.
