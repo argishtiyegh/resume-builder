@@ -77,6 +77,7 @@ Explore our career development blog for helpful tips and guides:
 - https://flowto.it/eukEM5gqF1?fc=0
 - https://flow.page/selfcv
 - https://medium.com/@eagis92/how-to-pass-the-six-second-resume-test-in-2025-a-comprehensive-guide-097849f4552b
+- https://solvertools.com/ai/selfcv
   
 ## Contact Us
 
