@@ -80,6 +80,7 @@ Explore our career development blog for helpful tips and guides:
 - https://solvertools.com/ai/selfcv
 - https://imgur.com/gallery/ats-friendly-resume-template-8zGYjt4
 - https://us.enrollbusiness.com/BusinessProfile/6969319/SELFCV-LLC-Alabama-NY
+- https://www.europages.co.uk/en/company/selfcv-22288804
   
 ## Contact Us
 
