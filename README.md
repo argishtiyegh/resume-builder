@@ -84,6 +84,7 @@ Explore our career development blog for helpful tips and guides:
 - https://www.bizify.co.uk/branding-and-design/aberdare/0064/selfcv
 - https://flowcv.me/argishtiyegh
 - https://resumebuilder.carrd.co/
+- https://sites.google.com/view/makeresume/home
   
 ## Contact Us
 
