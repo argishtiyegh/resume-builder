@@ -88,6 +88,7 @@ Explore our career development blog for helpful tips and guides:
 - https://www.behance.net/selfcv
 - https://www.owler.com/company/selfcv
 - https://triberr.com/selfcv
+- https://www.patreon.com/c/careerblog301
 
 ## Contact Us
 
