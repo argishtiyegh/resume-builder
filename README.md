@@ -86,6 +86,7 @@ Explore our career development blog for helpful tips and guides:
 - https://resumebuilder.carrd.co/
 - https://sites.google.com/view/makeresume/home
 - https://www.behance.net/selfcv
+- https://www.owler.com/company/selfcv
   
 ## Contact Us
 
