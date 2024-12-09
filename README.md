@@ -87,7 +87,8 @@ Explore our career development blog for helpful tips and guides:
 - https://sites.google.com/view/makeresume/home
 - https://www.behance.net/selfcv
 - https://www.owler.com/company/selfcv
-  
+- https://triberr.com/selfcv
+
 ## Contact Us
 
 For any questions or support, feel free to reach out to us via our website.
