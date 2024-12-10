@@ -89,6 +89,7 @@ Explore our career development blog for helpful tips and guides:
 - https://www.owler.com/company/selfcv
 - https://triberr.com/selfcv
 - https://www.patreon.com/c/careerblog301
+- https://brianjohnsson.livejournal.com/
 
 ## Contact Us
 
