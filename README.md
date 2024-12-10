@@ -91,6 +91,7 @@ Explore our career development blog for helpful tips and guides:
 - https://www.patreon.com/c/careerblog301
 - https://brianjohnsson.livejournal.com/
 - https://eagis.edublogs.org/2024/12/10/resume-writing-tips/
+- https://sites.google.com/view/resume-writing-guides/home
 
 ## Contact Us
 
