@@ -94,6 +94,7 @@ Explore our career development blog for helpful tips and guides:
 - https://sites.google.com/view/resume-writing-guides/home
 - https://linktr.ee/eagis
 - https://pantip.com/topic/43134607
+- https://500px.com/photo/1105401692/architecture-resume-writing-guide-by-argishti-yeghiazaryan
 
 ## Contact Us
 
