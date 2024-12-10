@@ -93,6 +93,7 @@ Explore our career development blog for helpful tips and guides:
 - https://eagis.edublogs.org/2024/12/10/resume-writing-tips/
 - https://sites.google.com/view/resume-writing-guides/home
 - https://linktr.ee/eagis
+- https://pantip.com/topic/43134607
 
 ## Contact Us
 
