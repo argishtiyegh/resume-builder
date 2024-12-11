@@ -98,6 +98,7 @@ Explore our career development blog for helpful tips and guides:
 - https://clutch.co/profile/selfcv#highlights
 - https://www.deviantart.com/selfcvresume/art/1132719744
 - https://www.deviantart.com/selfcvresume
+- https://www.slideshare.net/ArgishtiYeghiazaryan1
 
 ## Contact Us
 
