@@ -96,6 +96,7 @@ Explore our career development blog for helpful tips and guides:
 - https://pantip.com/topic/43134607
 - https://500px.com/photo/1105401692/architecture-resume-writing-guide-by-argishti-yeghiazaryan
 - https://clutch.co/profile/selfcv#highlights
+- https://www.deviantart.com/selfcvresume/art/1132719744
 
 ## Contact Us
 
