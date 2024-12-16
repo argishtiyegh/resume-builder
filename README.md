@@ -100,6 +100,7 @@ Explore our career development blog for helpful tips and guides:
 - https://www.deviantart.com/selfcvresume
 - https://www.slideshare.net/ArgishtiYeghiazaryan1
 - https://www.wattpad.com/1502064713-civil-engineer-resume-writing-guide-resume-for
+- https://about.me/selfcv/getstarted
 
 ## Contact Us
 
