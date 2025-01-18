@@ -103,6 +103,7 @@ Explore our career development blog for helpful tips and guides:
 - https://about.me/selfcv/getstarted
 - https://poweredbyai.app/project/selfcv
 - https://tinyurl.com/SELF-CV
+- https://www.slideshare.net/ArgishtiYeghiazaryan
 
 ## Contact Us
 
