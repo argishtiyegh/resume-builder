@@ -105,6 +105,7 @@ Explore our career development blog for helpful tips and guides:
 - https://tinyurl.com/SELF-CV
 - https://www.slideshare.net/ArgishtiYeghiazaryan
 - https://dev.to/savvyshivam/resume-building-resources-and-tips-854
+- https://www.saashub.com/selfcv
 
 ## Contact Us
 
