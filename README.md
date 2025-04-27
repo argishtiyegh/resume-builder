@@ -106,6 +106,7 @@ Explore our career development blog for helpful tips and guides:
 - https://www.slideshare.net/ArgishtiYeghiazaryan
 - https://dev.to/savvyshivam/resume-building-resources-and-tips-854
 - https://www.saashub.com/selfcv
+- https://www.eliteai.tools/tool/selfcv
 
 ## Contact Us
 
