@@ -107,6 +107,7 @@ Explore our career development blog for helpful tips and guides:
 - https://dev.to/savvyshivam/resume-building-resources-and-tips-854
 - https://www.saashub.com/selfcv
 - https://www.eliteai.tools/tool/selfcv
+- https://giphy.com/gifs/SHgG3npy4JJDtUtVWR
 
 ## Contact Us
 
